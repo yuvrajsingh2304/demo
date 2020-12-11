@@ -1,1 +1,1 @@
-# College willremain close on eve of Christmas.
+# College will remain close on eve of Christmas.
